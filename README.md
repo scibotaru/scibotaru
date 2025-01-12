@@ -1,3 +1,3 @@
-# Placeholder for the public blog
+# Personal blog
 
-to be continued
+fun stuff is comming... please stay tunned
